@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @ibrahim-ince
-- 🏫 I’m a computer engineering student at Kocaeli University.
+- 🏫 I’m a computer engineer!
